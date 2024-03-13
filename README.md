@@ -10,7 +10,7 @@ Client Experience @ UBS
 
 Data Analytics & Reporting Intern @ Fifty Six
 
-Ambassador, Social Innovation Lead @ Girls in tech
+Ambassador, Social Innovation Lead @ Girls in Tech Inc. NYC
 
 Private Economics & Statistics Tutor
 
