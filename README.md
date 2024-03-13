@@ -5,6 +5,7 @@ Coming Soon
 
 ### Work Experience
 Client Experience @ UBS
+
 Data Analytics & Reporting Intern @ Fifty Six
 
 ### Education
