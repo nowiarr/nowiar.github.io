@@ -3,7 +3,7 @@
 ### Technical Projects
 Coming Soon
 
-### Work Experience
+### Experience
 Client Experience @ UBS
 
 Data Analytics & Reporting Intern @ Fifty Six
