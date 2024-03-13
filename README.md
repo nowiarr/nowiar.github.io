@@ -6,14 +6,14 @@ Technical Skills: SQL, Python
 Coming Soon
 
 ### Experience
-** Client Experience @ UBS
+Client Experience @ UBS
 
-** Data Analytics & Reporting Intern @ Fifty Six
+Data Analytics & Reporting Intern @ Fifty Six
 
-** Ambassador, Social Innovation Lead @ Girls in tech
+Ambassador, Social Innovation Lead @ Girls in tech
 
-** Private Economics & Statistics Tutor
+Private Economics & Statistics Tutor
 
 
 ### Education
-- B.S. Finance | The Rohrer Collge of Business | Rowan University 
+B.S. Finance | The Rohrer Collge of Business | Rowan University 
